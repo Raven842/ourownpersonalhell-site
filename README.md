@@ -4,6 +4,7 @@
   it might not entirely vibe with you if u like my other stuff
 
 *********************************************************************************************
+            Description:
 
-A site to host a group writing project
+OwO || A site to host a group writing project || >w<
 
