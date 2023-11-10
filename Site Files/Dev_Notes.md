@@ -1,0 +1,1 @@
+This is were the Devs can write notes so we are caught up on any changes, it's just me for now but there might be another soon :3
